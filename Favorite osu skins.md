@@ -17,6 +17,6 @@
 [<h1>Spazza17 v2 [Fumo Bacon] + Modified Hitsounds<h1>](https://dark98.s-ul.eu/rejkw7Qd)
   ![image](https://user-images.githubusercontent.com/100438170/155889216-1eaeeb6a-682c-464d-a911-a75a52cf4b8a.png)
 
-[<h1>Kris (Deltarune) aka OfficialTails v5.0<h1>](https://dark98.s-ul.eu/m0iA8GAx)
+# [Kris (Deltarune) aka OfficialTails v5.0](https://dark98.s-ul.eu/m0iA8GAx)
   ![image](https://user-images.githubusercontent.com/100438170/156405193-d42f4c2f-6d87-48f5-9bbd-1233419028b1.jpeg)
  * Really good for HDHR/HDDT
