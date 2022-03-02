@@ -1,5 +1,5 @@
 # Dark98 osu! skins
-# All of my favorite skins + Skins I Mixed
+# All of my favorite skins + Skins I Mixed/Modified
 # Click on the skin name to install
 
 [<h1>Rias Dark98__ Edit<h1>](https://drive.google.com/file/d/1_FRRyFqTUoi4BVShfXxTtryYnCa9Qi9t/view?usp=sharing)
