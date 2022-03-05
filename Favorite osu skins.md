@@ -20,3 +20,7 @@
 # [Kris (Deltarune) aka OfficialTails v5.0](https://dark98.s-ul.eu/LsBhB8ME)
   ![image](https://user-images.githubusercontent.com/100438170/156405193-d42f4c2f-6d87-48f5-9bbd-1233419028b1.jpeg)
  * Really good for HDHR/HDDT
+ 
+  # [Aristia(Edit)+trail](https://dark98.s-ul.eu/wSsyO0cj)
+  ![image](https://user-images.githubusercontent.com/100438170/156893453-ceaf1f8f-3281-4eab-aebf-70587d3f9cc5.png)
+  
