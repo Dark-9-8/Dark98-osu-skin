@@ -5,6 +5,10 @@
 [<h1>Rias Dark98__ Edit<h1>](https://drive.google.com/file/d/1_FRRyFqTUoi4BVShfXxTtryYnCa9Qi9t/view?usp=sharing)
   ![image](https://user-images.githubusercontent.com/100438170/155863813-418963e6-bef5-4ea5-8fb6-a3a8cb6ac8bb.png)
   
+  # [CeilingWaffle neon v1.5](https://dark98.s-ul.eu/d1KUnC2c)
+  ![image](https://user-images.githubusercontent.com/100438170/158415873-77af57f6-318c-4115-9417-d484bba69369.png)
+  * Really good for stream maps
+
   [<h1>owoTuna {1.2} VV<h1>](https://dark98.s-ul.eu/23L4As07)
   ![image](https://user-images.githubusercontent.com/100438170/157985826-ed5a0635-2e15-4cf4-ae34-88c44ccbc871.png)
 
