@@ -2,7 +2,7 @@
 # All of my favorite skins + Skins I Mixed/Modified
 # Click on the skin name to install
 
-[<h1> Bacon boi 1.0 Blue Instafade<h1>](https://dark98.s-ul.eu/0fV3CeSo)
+# [<h1> Bacon boi 1.0 Blue Instafade<h1>](https://dark98.s-ul.eu/0fV3CeSo)
 ![image](https://user-images.githubusercontent.com/100438170/167450045-290a5afe-3d1b-4ba6-af3c-3130f3426bc3.png)
  * Favorite skin for DT
   
