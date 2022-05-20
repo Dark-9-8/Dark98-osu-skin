@@ -6,6 +6,10 @@
 ![image](https://user-images.githubusercontent.com/100438170/167450045-290a5afe-3d1b-4ba6-af3c-3130f3426bc3.png)
 * Favorite skin for DT
   
+[<h1>《CK》Ryanstolefromkevin - eran edits<h1>](https://dark98.s-ul.eu/RAG9e7dF)
+![image](https://user-images.githubusercontent.com/100438170/169570019-487d1a51-8457-4527-8e73-f8d142bae705.png)
+
+
 [<h1>Rias Dark98__ Edit<h1>](https://drive.google.com/file/d/1_FRRyFqTUoi4BVShfXxTtryYnCa9Qi9t/view?usp=sharing)
   ![image](https://user-images.githubusercontent.com/100438170/155863813-418963e6-bef5-4ea5-8fb6-a3a8cb6ac8bb.png)
   
