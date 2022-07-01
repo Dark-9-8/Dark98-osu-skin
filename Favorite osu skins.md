@@ -2,6 +2,10 @@
 # All of my favorite skins + Skins I Mixed/Modified
 # Click on the skin name to install
 
+  # [Aristia Trail Mix](https://dark98.s-ul.eu/76snhGED)
+ ![image](https://user-images.githubusercontent.com/100438170/176966694-545d075f-2552-45d3-b203-7f16ff15daa0.png)
+
+ 
  # [Bacon boi 1.0 Blue Instafade](https://dark98.s-ul.eu/0fV3CeSo)
 ![image](https://user-images.githubusercontent.com/100438170/167450045-290a5afe-3d1b-4ba6-af3c-3130f3426bc3.png)
 * Favorite skin for DT
